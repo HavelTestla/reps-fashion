@@ -1,2 +1,2 @@
 # reps-fashion
-https://haveltestla.github.io/reps-fashion/
+https://www.reps-fashion.com/
